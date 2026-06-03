@@ -1,4 +1,4 @@
-# 
+# Mejor statistical arbitrage bot complementos para Mac OS | Avanzado statistical arbitrage bot complementos para PC Windows. Con indexación de blockchain y comercio de pares — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
